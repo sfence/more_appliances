@@ -1,0 +1,8 @@
+
+-- crucibles
+
+-- clay
+
+-- corundum ?
+
+-- graphite
